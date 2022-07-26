@@ -1,1 +1,1 @@
-# BoaredApeNFT
+# BoredApeNFT
